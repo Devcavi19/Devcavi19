@@ -8,7 +8,7 @@ I love meeting new people and becoming friends.
 
 -->
 
-- 🌱 I’m currently learning: Artificial Intelligence and Data Structures
+- 🌱 I’m currently a third year college student
 - 🤔 I’m looking for help with: My code that hard for me
 - 📫 How to reach me: m.me/dongdi11
 - 😄 Pronouns: He/Him
